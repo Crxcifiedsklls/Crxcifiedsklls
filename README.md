@@ -19,6 +19,14 @@ hey, im Nolan, im A life-long Neymar fan.
 
 [`Neymar Jr. is football’s ultimate artist, blending breathtaking skill, elegant creativity, and unmatched flair. His dribbling turns defenders into spectators, while his vision and finishing create unforgettable moments. From Santos to Barcelona and Brazil, he has displayed extraordinary brilliance. His influence, talent, and legacy make him a compelling contender for football’s GOAT.` ]
 
+> heres my strawpage. 
+
+[[✦](https://neymar-1-fan.straw.page)]
+
+
+
+
+
 
 
 <img width="735" height="245" alt="b884de6e504e6665fd96bcb20fc11d1d" src="https://github.com/user-attachments/assets/29b811aa-9b99-4190-bc22-ba6ea173f3da" />
