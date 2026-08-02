@@ -21,7 +21,7 @@ hey, im Nolan, im A life-long Neymar fan.
 
 > heres my strawpage. 
 
-[[✦](https://neymar-1-fan.straw.page)]
+[[✦](https://neymar-1-fan.straw.page)] ︳↢
 
 
 
