@@ -29,6 +29,3 @@ stuff about me.
 
 `+ and i HATE larpers. Dni if you're a LARP. /hj`
   
-
-
-
