@@ -15,17 +15,16 @@ hey, im Nolan, im A life-long Neymar fan.
 ----
 
 
-<img width="600" height="450" alt="dd5442f94affb716e79f25ed91d2eb45" src="https://github.com/user-attachments/assets/ec79c541-d074-414d-8dbc-b23c9312cd56" />
+<img width="622" height="350" alt="b74828a5d2fce5ecff330d60e4d49b0d" src="https://github.com/user-attachments/assets/930154f6-e0ab-4a8b-a7b0-99f8421857df" />
 
-
-
+[`Neymar Jr. is football’s ultimate artist, blending breathtaking skill, elegant creativity, and unmatched flair. His dribbling turns defenders into spectators, while his vision and finishing create unforgettable moments. From Santos to Barcelona and Brazil, he has displayed extraordinary brilliance. His influence, talent, and legacy make him a compelling contender for football’s GOAT.` ]
 
 
 stuff about me. 
 ---------------
-i like football, volleyball, art, music, and the color red. my favorite animal is foxes, and im Loud. im a lazy bum but i go crazy when it comes to making useless stuffs. 
+`i like football, volleyball, art, music, and the color red. my favorite animal is foxes, and im Loud. im a lazy bum but i go crazy when it comes to making useless stuffs.`
 
-+ and i HATE larpers. Dni if you're a LARP. /hj
+`+ and i HATE larpers. Dni if you're a LARP. /hj`
   
 
 
