@@ -23,13 +23,12 @@ hey, im Nolan, im A life-long Neymar fan.
 
 [[✦](https://neymar-1-fan.straw.page)] ︳↢
 
+ 
 
 
+<img width="730" height="250" alt="b884de6e504e6665fd96bcb20fc11d1d" src="https://github.com/user-attachments/assets/29b811aa-9b99-4190-bc22-ba6ea173f3da" />
 
-
-
-
-<img width="735" height="245" alt="b884de6e504e6665fd96bcb20fc11d1d" src="https://github.com/user-attachments/assets/29b811aa-9b99-4190-bc22-ba6ea173f3da" />
+------------
 
 stuff about me. 
 ---------------
