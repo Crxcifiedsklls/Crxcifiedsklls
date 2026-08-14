@@ -36,3 +36,4 @@ stuff about me.
 
 `+ and i HATE larpers. Dni if you're a LARP. /hj`
   
+<img width="500" height="120" alt="4339d3a4a25f4ec5bfc4faa2a7d5c42f" src="https://github.com/user-attachments/assets/fbcc996b-ab2f-48d5-8be8-ccff40cf5d51" />
