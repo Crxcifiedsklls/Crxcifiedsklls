@@ -18,11 +18,6 @@ hey, im Nolan, im A life-long Neymar fan.
 <img width="622" height="350" alt="b74828a5d2fce5ecff330d60e4d49b0d" src="https://github.com/user-attachments/assets/930154f6-e0ab-4a8b-a7b0-99f8421857df" />
 
 ----------
-> here's my strawpage. 
-
-
-[[✦](https://neymar-1-fan.straw.page)]
-
 
 <img width="730" height="250" alt="b884de6e504e6665fd96bcb20fc11d1d" src="https://github.com/user-attachments/assets/29b811aa-9b99-4190-bc22-ba6ea173f3da" />
 
