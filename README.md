@@ -11,7 +11,10 @@ $${\color{gray} ' i  \space dont \space believe \space in \space god \space but 
 
 <img width="735" height="75" alt="Tak berjudul480_20260908115708" src="https://github.com/user-attachments/assets/a8f89fe5-47d9-4fab-9b9e-8ea3bacdba49" />
 
-*• still wip.*
+
+> my sp →
+[NJR](https://neymarjunior.straw.page)
+
 
 <img width="500" height="220" alt="66ad8a8b3cf59cee451e53ec45ad76c3" src="https://github.com/user-attachments/assets/a4d6ddcc-2747-44c6-9e5c-3426e1c56f0c" />
 
