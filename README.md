@@ -6,8 +6,8 @@
 <img width="735" height="75" alt="Tak berjudul480_20260908115708" src="https://github.com/user-attachments/assets/a8f89fe5-47d9-4fab-9b9e-8ea3bacdba49" />
 
 
-$${\color{gray} ' i  \space dont \space believe \space in \space god \space but \space i \space believe \space that \space youre \space my \space savior.' }$$
-
+$${\color{gray} ' i  \space dont \space believe \space in \space god ' }$$
+$${\color{gray} ' but \space i \space believe \space that \space you're \space my \space savior.' }$$ 
 
 <img width="735" height="75" alt="Tak berjudul480_20260908115708" src="https://github.com/user-attachments/assets/a8f89fe5-47d9-4fab-9b9e-8ea3bacdba49" />
 
